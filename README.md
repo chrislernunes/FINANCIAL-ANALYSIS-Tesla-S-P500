@@ -1,1 +1,1 @@
-# TeslaAndSnp500FinancialAanalysis2022
+
